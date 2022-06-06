@@ -1,0 +1,2 @@
+# TheBrujo-
+algo rit mos 
